@@ -1,0 +1,2 @@
+# ThankYouAppleBrazil
+We are idiots!
